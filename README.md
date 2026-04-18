@@ -10,6 +10,9 @@
 - 👯 I’m looking to collaborate on **Open Source**
 
 - 📫 How to reach me **preet.k25627@nst.rishihood.edu.in**
+- Contact me -7015885893
+  I have also made ImageEditor website using canva
+  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
